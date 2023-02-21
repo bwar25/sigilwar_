@@ -1,0 +1,2 @@
+# sigilwar_
+Trading Musings
